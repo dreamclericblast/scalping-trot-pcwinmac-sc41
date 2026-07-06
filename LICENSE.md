@@ -1,4 +1,4 @@
-# 
+# Premium scalping trading bot extensions for Mac OS | VIP scalping trading bot extensions for PC Windows. Featuring trading de contrats à terme and API d'échange centralisé — optimized for maximum performance.
 
 
 
